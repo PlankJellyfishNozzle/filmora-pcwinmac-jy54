@@ -1,4 +1,4 @@
-# 
+# Premium Filmora ferramentas para Mac OS | Nativo Filmora ferramentas para PC Windows. Com captura multisfonte e remoção de tela verde — otimizado para máximo desempenho em cada plataforma.
 
 
 
